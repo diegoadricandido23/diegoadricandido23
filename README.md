@@ -7,3 +7,4 @@ I'm studing a Architecture of Software, and like
 to learn a new technologies, i like and studing Flutter and React.
 
 Would you like to find me?
+https://www.linkedin.com/in/diego-adriano-5b49773b/
